@@ -18,6 +18,6 @@ College:College of Chemistry and Molecular Engineering
 
 Tel:18099930080
 
-E-mail:3323155914@qq.com
+E-mail:1800011787@pku.edu.cn
 
 Add：Peking University 
